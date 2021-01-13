@@ -1,0 +1,1 @@
+domaschka po sinchronizacii
