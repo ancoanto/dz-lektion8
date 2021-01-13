@@ -1,1 +1,1 @@
-domaschka po sinchronizacii
+domaschka po sinchronizacii vypolnena
